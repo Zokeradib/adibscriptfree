@@ -1,0 +1,2 @@
+# adibscriptfree
+Assalamoalaikom
